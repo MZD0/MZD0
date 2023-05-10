@@ -1,5 +1,5 @@
 -  @MZD0
-- Seeking Jhana through dream code and Phenomena
+- Seeking Jhana through dreams of 0's and 1's 
 - 🌱 I’m currently learning ... Everything
 - 💞️ I’m looking to collaborate on ... Anything
 - 
